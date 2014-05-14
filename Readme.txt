@@ -1,4 +1,4 @@
-BAT CHANGE NOW
+BAT HI
 
 Please follow link to get JM Product Slider userguide
 
